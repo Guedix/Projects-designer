@@ -1,0 +1,1 @@
+Seja bem-vindo aos meus estudos e aperfeiçoamento de logotipo
