@@ -1,1 +1,1 @@
-Seja bem-vindo aos meus estudos e aperfeiçoamento de logotipo
+Seja bem-vindo aos meus estudos, aperfeiçoamento e criações de logotipos
